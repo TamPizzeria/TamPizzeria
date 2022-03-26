@@ -1,0 +1,4 @@
+- 👋 Hi, We're Tam's Pizzeria
+- 👀 A community driven server by @Rnen & @RainBawZ
+- 🌱 You can find us at https://discord.me/pizzeria
+- 💞️ We run several different game servers and services, come join us!
